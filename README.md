@@ -1,1 +1,0 @@
-# Niyahashitori.github.io
